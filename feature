@@ -1,1 +1,1 @@
-parasha
+parasha.
